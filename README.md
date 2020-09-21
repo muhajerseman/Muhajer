@@ -1,2 +1,0 @@
-# muhajerseman
-CONSTITUTIONAL LAW
